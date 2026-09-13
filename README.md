@@ -1,0 +1,1 @@
+# seohoo-mini-survival
